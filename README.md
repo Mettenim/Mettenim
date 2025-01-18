@@ -4,8 +4,7 @@
 
 - 🌱 I’m always learning
 
-- 💞️ I’m looking to collaborate on a multi-dimensional storytelling platform that lives on the web, 
-enabling authors to tell stories within stories and readers to explore wherever their curiosity takes them. 
+- 💞️ I’m looking to collaborate on starting small-scale businesses that evolve society, technology and commerce towards a world that's better for all. 
 
 - 📫 Write me on LinkedIn at /minettemangahas
 
